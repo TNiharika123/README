@@ -15,7 +15,7 @@
 
 - 👧🏻 Pronouns- She/Her
 
-- 📫 Reach me via **Thakueniharika2001@gmail.com**
+- 📫 Reach me via **thakueniharika2003@gmail.com**
 
 <h3 align="left">🤝Connect with me:</h3>
 <p align="left">
